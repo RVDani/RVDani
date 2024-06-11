@@ -9,6 +9,6 @@ Meu nome é Daniella Ribeiro Valim
 
 ### Instagram @Daniella.rv 📬
 
-![](https://media1.tenor.com/m/oXE-MilclX8AAAAd/sherek-brasil.gif)
+![](https://i.pinimg.com/736x/76/60/8b/76608be0e55bf6f142bf2ff6bafb465b.jpg)
 
 ![](https://media1.tenor.com/m/oXE-MilclX8AAAAd/sherek-brasil.gif)
